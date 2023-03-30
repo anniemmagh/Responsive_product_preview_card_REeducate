@@ -1,0 +1,1 @@
+# Responsive_product_preview_card_REeducate
